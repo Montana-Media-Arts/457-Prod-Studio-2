@@ -1,6 +1,6 @@
 
 
-# Syllabus | Production Studio 1 (MART 416)
+# Syllabus | Production Studio 2 (MART 416)
 
 Date modified: 01-14-2020
 
